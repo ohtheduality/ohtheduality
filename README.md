@@ -1,1 +1,1 @@
-<img width="578" height="432" alt="Sean_seildirectory-removebg-preview__fliter--golden-x-rays__channel--red__mode--color-dodge__fliter--golden-x-rays__channel--red__mode--difference" src="https://github.com/user-attachments/assets/abf9c12d-c7cd-4519-964e-fee539400ecd" />
+<img width="578" height="432" alt="Sean_seildirectory-removebg-preview__fliter--golden-x-rays__channel--red__mode--color-dodge__fliter--golden-x-rays__channel--red__mode--difference" src="https://github.com/user-attachments/assets/62b70a8e-2420-4fc2-9a8a-356b7c70347e" /> art by oolin0
