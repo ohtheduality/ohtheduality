@@ -1,3 +1,9 @@
+<p align="center">
+<img src="https://files.catbox.moe/vllcr8.png"
+</p>
+
+
+
 يرا من الجذاميرا من الجذاميرا من الجذاميرا من الجذاميرا من الجذاميرا من الجذام
 
 
@@ -24,7 +30,12 @@
 
 Божа, Аб
 
-
-
+<p align="center">
+<img src="https://files.catbox.moe/ct1ihn.gif"
+  </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ夢の街
+<p align="center">
+<img src="https://files.catbox.moe/nr9w5u.png"
+</p>
+
