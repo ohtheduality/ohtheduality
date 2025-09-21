@@ -34,7 +34,7 @@
 <img src="https://files.catbox.moe/ct1ihn.gif"
   </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ夢の街
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ夢の街
 <p align="center">
 <img src="https://files.catbox.moe/nr9w5u.png"
 </p>
